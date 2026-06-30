@@ -6,4 +6,4 @@
 
 _esperança de um futuro juntos_
 
-<img width="220" height="279" alt="image" src="https://github.com/user-attachments/assets/730352cc-880a-42f5-8875-93504cd8c2df" />
+<img width="498" height="286" alt="image" src="https://github.com/user-attachments/assets/85f55c7c-e51f-4b86-a025-9e629b6fa2c5" />
