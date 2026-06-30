@@ -4,4 +4,4 @@
 
 **amor e desejo de proximidade**
 
-__esperança de um futuro juntos__
+__esperança de um futuro juntos
