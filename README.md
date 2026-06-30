@@ -5,4 +5,5 @@
 **amor e desejo de proximidade**
 
 _esperança de um futuro juntos_
+
 <img width="220" height="279" alt="image" src="https://github.com/user-attachments/assets/730352cc-880a-42f5-8875-93504cd8c2df" />
